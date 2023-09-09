@@ -7,7 +7,7 @@ Check (game dev webgl team) Portfolio , playable free in your Browser:
 - 💞️ I’m looking to collaborate on ... game dev
 - 📫 How to reach me ... good comments
 - ?*  useing collaborate in team game dev
-- xe  (no comusit or cnc sovjets) barrier for safty therefor obstacles
+- xe  (no comunist or cnc sovjets) barrier for safty therefor obstacles
 - sk  sneaky dirty hidden tricks just late in game
 - en  western oriented nation aliance and culture
 - su  support if you have staying ressources for good
