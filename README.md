@@ -14,7 +14,13 @@ Check (game dev webgl team) Portfolio , playable free in your Browser:
 - 💞️ I’m looking to collaborate on ... game dev
 - 📫 How to reach me ... good comments
 - ?*  useing collaborate in team game dev
-- xe  (no comunist or cnc sovjets) barrier for safty therefor obstacles
+- rpg Role Playing Game, gather than craft the items
+- ad  action and adventure
+- jp  jump and run known as mario
+- su  survival
+- ho  horror halloween
+- st  strategy puzzele to avoid lost but enhance
+- xe  less comunist or cnc sovjets so barrier for safty! therefor obstacles
 - sk  sneaky dirty hidden tricks just late in game
 - en  western oriented nation aliance and culture
 - su  support if you have staying ressources for good
